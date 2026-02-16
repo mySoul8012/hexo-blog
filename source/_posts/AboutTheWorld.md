@@ -92,4 +92,6 @@ I prefer the life of picking chrysanthemums by the eastern fence, leisurely gazi
 Life is inherently lonely.
 
 
+# 除夕越快乐，反而更不快乐
 
+The more joyfully one celebrates New Year's Eve, the less happiness they feel.
