@@ -27,3 +27,28 @@ An empty heart.
 
 -- Some thoughts about the world.
 
+# 关于爱情
+
+曾经有那么一刻感觉到，这个世界上没有一个人会爱我，也没有一个人会对我无缘无故的好，以及无缘无故的爱。
+
+曾经有那么一刻，产生了一种爱无力的感觉。
+
+曾经有那么一刻，被排除到了整个世界之外。
+
+曾经有那么一刻，感觉不再像个人类。
+
+有那么一刻，有那么一阵的爱无能的感觉。
+
+
+# About Love
+
+There was once a moment when I felt that no one in this world would ever love me, and no one would ever be kind to me or love me without reason.
+
+There was once a moment when I felt powerless in love.
+
+There was once a moment when I felt excluded from the entire world.
+
+There was once a moment when I no longer felt like a human being.
+
+There was a moment, a brief moment, when I felt utterly incapable of love.
+
