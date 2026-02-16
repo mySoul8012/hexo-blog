@@ -55,3 +55,41 @@ There was once a moment when I no longer felt like a human being.
 There was a moment, a brief moment, when I felt utterly incapable of love.
 
 -- Some thoughts about love
+
+
+# 关于金钱，关于欲望
+
+曾经有那么一刻，感觉到这个世界上人都是可恶的。
+
+曾经有那么一刻，感觉这个世界上都是欲望驱动的。
+
+曾经有那么一刻，感觉到这个世界上都是以盈利，以欲望，以赚钱为目的的。
+
+这个可恶的世界
+
+一个物欲横流，构成的世界。
+
+我更喜欢，采菊东篱下，悠然现南山的生活。
+
+
+About Money, About Desire
+
+There was once a moment when I felt that people in this world are despicable.
+
+There was once a moment when I felt that the world is driven by desire.
+
+There was once a moment when I felt that the world is all about profit, desire, and making money.
+
+This despicable world.
+
+A world driven by materialistic desires.
+
+I prefer the life of picking chrysanthemums by the eastern fence, leisurely gazing at the southern mountain.
+
+
+# 人生而孤独
+
+Life is inherently lonely.
+
+
+
