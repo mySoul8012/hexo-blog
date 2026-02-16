@@ -103,5 +103,5 @@ Life is inherently lonely.
 
 # 知足常乐
 
-Contentment brings happiness.
+# Contentment brings happiness.
 
