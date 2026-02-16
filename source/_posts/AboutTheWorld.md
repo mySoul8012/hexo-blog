@@ -94,4 +94,14 @@ Life is inherently lonely.
 
 # 除夕越快乐，反而更不快乐
 
-The more joyfully one celebrates New Year's Eve, the less happiness they feel.
+# The more joyfully one celebrates New Year's Eve, the less happiness they feel.
+
+
+# 一个破碎的 home
+
+# A broken home.
+
+# 知足常乐
+
+Contentment brings happiness.
+
