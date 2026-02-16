@@ -39,6 +39,8 @@ An empty heart.
 
 有那么一刻，有那么一阵的爱无能的感觉。
 
+-- 一些关于爱情的思考
+
 
 # About Love
 
@@ -52,3 +54,4 @@ There was once a moment when I no longer felt like a human being.
 
 There was a moment, a brief moment, when I felt utterly incapable of love.
 
+-- Some thoughts about love
